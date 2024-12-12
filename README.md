@@ -1,6 +1,5 @@
 <div align="right">
  
- _text only version_ [_here_ ](https://telegra.ph/ryos-github-text-only-version-12-12-20024-12-12)
  
 <div align="center">
 
