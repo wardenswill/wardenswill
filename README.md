@@ -8,5 +8,7 @@
  
 ryo any prns ◞ [rentry ](https://rentry.co/mendings)
 
+ _pfp @cherietaime | banner @reinfalllz_
+ 
 ![](https://komarev.com/ghpvc/?username=wardenswill&style=plastic&color=256F11&label=winnerspov&abbreviated=true)
 
