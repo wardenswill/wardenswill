@@ -1,8 +1,12 @@
 <div align="center">
 
-<img src="https://i.imgur.com/UV6wpTp.png" width="500" height="320">
+ $${\color{#A8A7AA}the}$$ $${\color{#A8A7AA}ending}$$ $${\color{#A8A7AA}is}$$ $${\color{#F94F53}yours}$$ $${\color{#A8A7AA}...}$$ 
  
-ryo any prns ◞ [rentry (^⩊^)](https://rentry.co/mendings)
+ $${\color{#F94F53}make}$$ $${\color{#F8FA45}it}$$ $${\color{#4FFD53}WILD}$$
 
-![](https://komarev.com/ghpvc/?username=wardenswill&style=plastic&color=ff69b4&label=cats&abbreviated=true)
+<img src="https://i.imgur.com/4bpkzEG.png" width="600" height="340">
+ 
+ryo any prns ◞ [rentry ](https://rentry.co/mendings)
+
+![](https://komarev.com/ghpvc/?username=wardenswill&style=plastic&color=256F11&label=winnerspov&abbreviated=true)
 
