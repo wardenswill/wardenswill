@@ -11,7 +11,7 @@
 
 <img src="https://i.imgur.com/4bpkzEG.png" width="600" height="340">
  
-ryo any prns ◞ [rentry ](https://rentry.co/mendings)
+ryo any prns ◞ [strawpage ](https://cakebaker.straw.page)
 
  _pfp @cherietaime | banner @reinfalllz_
  
