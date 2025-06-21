@@ -3,17 +3,12 @@
  
 <div align="center">
 
- $${\color{#A8A7AA}the}$$ $${\color{#A8A7AA}ending}$$ $${\color{#A8A7AA}is}$$ $${\color{#F94F53}yours}$$ 
- 
- $${\color{#A8A7AA}...}$$ 
- 
- $${\color{#F94F53}make}$$ $${\color{#F8FA45}it}$$ $${\color{#4FFD53}𝙒𝙄𝙇𝘿}$$
 
-<img src="https://i.imgur.com/4bpkzEG.png" width="600" height="340">
+<img src="https://files.catbox.moe/dzkgq1.png" width="600" height="360">
  
-ryo any prns ◞ [strawpage ](https://cakebaker.straw.page)
+ryo any prns ◞ [strawpage ](https://blueberriess.straw.page)
 
- _pfp @cherietaime | banner @reinfalllz_
+ _pfp @shepscapades | banner @wasyago_
  
-![](https://komarev.com/ghpvc/?username=wardenswill&style=plastic&color=256F11&label=winnerspov&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=wardenswill&style=plastic&color=623232&label=poppies&abbreviated=true)
 
