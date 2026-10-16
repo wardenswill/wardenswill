@@ -6,7 +6,7 @@
 
 <img src="https://files.catbox.moe/dzkgq1.png" width="600" height="360">
  
-**ryo** / **juno**, any prns ◞ [strawpage ](https://blueberriess.straw.page)
+**rain** / **5**, any prns ◞ 
 
  _pfp **@shepscapades** | banner **@wasyago**_
  
